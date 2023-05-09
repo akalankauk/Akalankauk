@@ -1,4 +1,9 @@
-### Hi there 👋
+### Hello 👋
+
+
+- Note: Please be informed that this is an inactive profile and is no longer being monitored or managed. As such, any messages or inquiries directed to this account will not be addressed.
+
+#### Active Profile: @Akalanka1337
 
 <!--
 **akalankauk/Akalankauk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
